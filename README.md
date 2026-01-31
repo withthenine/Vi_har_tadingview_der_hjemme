@@ -1,0 +1,1 @@
+# Vi_har_tadingview_der_hjemme
